@@ -1,1 +1,1 @@
-# rsschool-cv
+https://Killerfrizz.github.io/rsschool-cv/cv
